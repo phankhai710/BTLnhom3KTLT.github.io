@@ -19,4 +19,4 @@
   7. Đỗ Văn Hồng - B19DCVT162  
   8. Nguyễn Đức Long - B19DCVT233
   9. Moong Hoài Linh - B19DCVT221 
- 10 Nguyễn Đăng Khoa - B19DCVT207
+  10.Nguyễn Đăng Khoa - B19DCVT207
