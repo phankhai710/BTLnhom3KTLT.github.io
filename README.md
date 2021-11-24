@@ -21,3 +21,4 @@
   9. Moong Hoài Linh - B19DCVT221 
   10. Nguyễn Đăng Khoa - B19DCVT207
   11. Nguyễn Thiện Lâm - B19DCVT215
+  12. Lương Ngọc Huy - B19DCVT175
