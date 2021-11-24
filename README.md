@@ -18,5 +18,5 @@
   6. Nguyễn Trần Tuấn Minh - B19DCVT255
   7. Đỗ Văn Hồng - B19DCVT162  
   8. Nguyễn Đức Long - B19DCVT233
-  9.   
+  9. Moong Hoài Linh - B19DCVT221 
  
