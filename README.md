@@ -16,5 +16,7 @@
   4. Vi Trung Kiên - B19DCVT195
   5. Đỗ Ngọc Huấn - B19DCVT163
   6. Nguyễn Trần Tuấn Minh - B19DCVT255
-  7. Đỗ Văn Hồng - B19DCVT162    
+  7. Đỗ Văn Hồng - B19DCVT162  
+  8. Nguyễn Đức Long - B19DCVT233
+  9.   
  
