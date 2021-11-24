@@ -14,3 +14,4 @@
   2. Trần Ngọc Khánh - B19DCVT201
   3. Luyện Vi Hữu Khiêm - B19DCVT204
   4. Vi Trung Kiên - B19DCVT195
+  5. Đỗ Ngọc Huấn - B19DCVT163
